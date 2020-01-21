@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Hockey
+2. Doggo
+3. Rocket League
